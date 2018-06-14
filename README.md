@@ -1,0 +1,1 @@
+# Statics-Project-for-SBU
